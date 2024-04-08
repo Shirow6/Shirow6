@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about : 
 - 📫 How to reach me : 
 - 😄 Pronouns :
-- ⚡ Fun fact: Did you know that sign language is the least spoken language in the world?
+- ⚡ Fun fact: Did you know that sign language is the least spoken language in the world!
